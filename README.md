@@ -22,8 +22,12 @@ minecraft ✧ 2xko ✧ marvel rivals ✧ fortnite ✧ roblox ✧ skullgirls ✧ 
 
 ## ⧖ kins (but im not rly a serious kinny) ⧖                                                                   
 
-greg heffley ✧ max baker ✧ sunset shimmer
+greg heffley ✧ max baker ✧ sunset shimmer                                                                   
 
+
+## ⧖ DNI list ⧖                                                                   
+
+homophobes ✧ transphobes ✧ racists ✧ proshippers ✧ darkshippers ✧ maga ✧ transmeds ✧ biphobes
 
 <!--
 **quivil/quivil** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
