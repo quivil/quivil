@@ -1,6 +1,6 @@
 ## characters i like ::
 # ⧖ arcane ⧖ ekko ✧ jinx ✧ caitlyn ✧ vi ✧ mel ✧ jayce ✧ sevika
-# ⧖ marvel ⧖ bucky barnes ✧ sam wilson ✧ joaquin torres ✧ loki ✧ moonknight ✧ wanda ✧ mantis ✧ rio vidal ✧
+# ⧖ marvel ⧖ bucky barnes ✧ sam wilson ✧ joaquin torres ✧ loki ✧ moonknight ✧ wanda ✧ mantis ✧ rio vidal ✧ spiderman(andrew) ✧ spiderman(tom) ✧ spiderman(miles) ✧ bob reynolds ✧ yelena belova ✧ starlord ✧ drax ✧ gamora ✧ nebula ✧ black panther
 # ⧖ xmen ⧖
 # ⧖ dc ⧖
 # ⧖ anime ⧖
