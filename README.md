@@ -1,4 +1,13 @@
-## Hi there 👋
+## character i like ::
+⧖ arcane ⧖ ekko ✧ jinx ✧ caitlyn ✧ vi ✧ mel ✧ jayce ✧ sevika
+⧖ marvel ⧖ bucky barnes ✧ sam wilson ✧ joaquin torres ✧ loki ✧ moonknight ✧ wanda ✧ mantis ✧ rio vidal ✧
+⧖ xmen ⧖
+⧖ dc ⧖
+⧖ anime ⧖
+⧖ games ⧖
+⧖ etc ⧖
+
+
 
 <!--
 **quivil/quivil** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
