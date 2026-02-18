@@ -17,8 +17,12 @@
 ## ⧖ games i like ⧖                                                                   
 
 
-minecraft ✧ 2xko ✧ marvel rivals ✧ fortnite ✧ roblox ✧ skullgirls ✧ red dead redemption 2 ✧ avatar frontiers of pandora ✧ south park the stick of truth
+minecraft ✧ 2xko ✧ marvel rivals ✧ fortnite ✧ roblox ✧ skullgirls ✧ red dead redemption 2 ✧ avatar frontiers of pandora ✧ south park the stick of truth                                                                   
 
+
+## ⧖ kins (but im not rly a serious kinny) ⧖                                                                   
+
+greg heffley ✧ max baker ✧ sunset shimmer
 
 
 <!--
