@@ -14,9 +14,10 @@
 ⧖ anime ⧖ ✧ L ✧ light yagami ✧ misa amane ✧ near ✧ zuko ✧ katara ✧ sokka ✧ aang ✧ azula ✧ toph ✧ uncle iroh ✧ nezuko ✧ tanjiro                                                                   
 
 
-⧖ etc ⧖ ✧ 
-# ⧖ games i like ⧖ ✧ 
-# ⧖ etc ⧖ ✧ 
+## ⧖ games i like ⧖                                                                   
+
+
+minecraft ✧ 2xko ✧ marvel rivals ✧ fortnite ✧ roblox ✧ skullgirls ✧ red dead redemption 2 ✧ avatar frontiers of pandora ✧ south park the stick of truth
 
 
 
