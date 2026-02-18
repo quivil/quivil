@@ -8,7 +8,7 @@
 ⧖ xmen ⧖ ✧ magneto ✧ quicksilver ✧ storm ✧ phoenix ✧ nightcrawler ✧ deadpool ✧ magik ✧ psylocke ✧ prof x ✧ cyclops ✧ rogue                                                                   
 
 
-⧖ dc ⧖ ✧ catwomen ✧ batman ✧ superman ✧ harley quinn ✧ poison ivy ✧ lex luther ✧ joker ✧ deadshot ✧ robin ✧ starfire ✧ raven ✧ cyborg ✧ beastboy                                                                   
+⧖ dc ⧖ ✧ catwomen ✧ batman ✧ superman ✧ harley quinn ✧ poison ivy ✧ lex luther ✧ joker ✧ supergirl ✧ deadshot ✧ robin ✧ starfire ✧ raven ✧ cyborg ✧ beastboy                                                                   
 
 
 ⧖ anime ⧖ ✧ L ✧ light yagami ✧ misa amane ✧ near ✧ zuko ✧ katara ✧ sokka ✧ aang ✧ azula ✧ toph ✧ uncle iroh ✧ nezuko ✧ tanjiro                                                                   
