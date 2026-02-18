@@ -1,11 +1,11 @@
-## character i like ::
-⧖ arcane ⧖ ekko ✧ jinx ✧ caitlyn ✧ vi ✧ mel ✧ jayce ✧ sevika
-⧖ marvel ⧖ bucky barnes ✧ sam wilson ✧ joaquin torres ✧ loki ✧ moonknight ✧ wanda ✧ mantis ✧ rio vidal ✧
-⧖ xmen ⧖
-⧖ dc ⧖
-⧖ anime ⧖
-⧖ games ⧖
-⧖ etc ⧖
+## characters i like ::
+# ⧖ arcane ⧖ ekko ✧ jinx ✧ caitlyn ✧ vi ✧ mel ✧ jayce ✧ sevika
+# ⧖ marvel ⧖ bucky barnes ✧ sam wilson ✧ joaquin torres ✧ loki ✧ moonknight ✧ wanda ✧ mantis ✧ rio vidal ✧
+# ⧖ xmen ⧖
+# ⧖ dc ⧖
+# ⧖ anime ⧖
+# ⧖ games ⧖
+# ⧖ etc ⧖
 
 
 
