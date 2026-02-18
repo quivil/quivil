@@ -3,9 +3,9 @@
 # ⧖ marvel ⧖ ✧ bucky barnes ✧ sam wilson ✧ joaquin torres ✧ loki ✧ moonknight ✧ wanda ✧ mantis ✧ rio vidal ✧ spiderman(andrew) ✧ spiderman(tom) ✧ spiderman(miles) ✧ bob reynolds ✧ yelena belova ✧ starlord ✧ drax ✧ gamora ✧ nebula ✧ black panther
 # ⧖ xmen ⧖ ✧ magneto ✧ quicksilver ✧ storm ✧ phoenix ✧ nightcrawler ✧ deadpool ✧ magik ✧ psylocke ✧ prof x ✧ cyclops ✧ rogue
 # ⧖ dc ⧖ ✧ catwomen ✧ batman ✧ superman ✧ harley quinn ✧ poison ivy ✧ lex luther ✧ joker ✧ deadshot ✧ robin ✧ starfire ✧ raven ✧ cyborg ✧ beastboy
-# ⧖ anime ⧖ ✧ L ✧ light yagami ✧ misa amane ✧ near ✧ zuko ✧ katara ✧ sokka ✧ aang ✧ azula ✧ toph ✧ uncle iroh ✧ nezuko ✧ tanjiro
-# ⧖ games ⧖ ✧ 
-# ⧖ etc ⧖ ✧ 
+⧖ anime ⧖ ✧ L ✧ light yagami ✧ misa amane ✧ near ✧ zuko ✧ katara ✧ sokka ✧ aang ✧ azula ✧ toph ✧ uncle iroh ✧ nezuko ✧ tanjiro
+⧖ games ⧖ ✧ 
+⧖ etc ⧖ ✧ 
 
 
 
