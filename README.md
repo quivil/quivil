@@ -1,11 +1,11 @@
 ## characters i like ::
-# ⧖ arcane ⧖ ekko ✧ jinx ✧ caitlyn ✧ vi ✧ mel ✧ jayce ✧ sevika
-# ⧖ marvel ⧖ bucky barnes ✧ sam wilson ✧ joaquin torres ✧ loki ✧ moonknight ✧ wanda ✧ mantis ✧ rio vidal ✧ spiderman(andrew) ✧ spiderman(tom) ✧ spiderman(miles) ✧ bob reynolds ✧ yelena belova ✧ starlord ✧ drax ✧ gamora ✧ nebula ✧ black panther
-# ⧖ xmen ⧖
-# ⧖ dc ⧖
-# ⧖ anime ⧖
-# ⧖ games ⧖
-# ⧖ etc ⧖
+# ⧖ arcane ⧖ ✧ ekko ✧ jinx ✧ caitlyn ✧ vi ✧ mel ✧ jayce ✧ sevika
+# ⧖ marvel ⧖ ✧ bucky barnes ✧ sam wilson ✧ joaquin torres ✧ loki ✧ moonknight ✧ wanda ✧ mantis ✧ rio vidal ✧ spiderman(andrew) ✧ spiderman(tom) ✧ spiderman(miles) ✧ bob reynolds ✧ yelena belova ✧ starlord ✧ drax ✧ gamora ✧ nebula ✧ black panther
+# ⧖ xmen ⧖ ✧ magneto ✧ quicksilver ✧ storm ✧ phoenix ✧ nightcrawler ✧ deadpool ✧ magik ✧ psylocke ✧ prof x ✧ cyclops ✧ rogue
+# ⧖ dc ⧖ ✧ 
+# ⧖ anime ⧖ ✧ 
+# ⧖ games ⧖ ✧ 
+# ⧖ etc ⧖ ✧ 
 
 
 
