@@ -1,4 +1,4 @@
-## characters i like ::
+## ⧖ characters i like ⧖
 ⧖ arcane ⧖ ✧ ekko ✧ jinx ✧ caitlyn ✧ vi ✧ mel ✧ jayce ✧ sevika                                                                   
 
 
