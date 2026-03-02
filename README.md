@@ -20,7 +20,7 @@
 minecraft ✧ 2xko ✧ marvel rivals ✧ fortnite ✧ roblox ✧ skullgirls ✧ red dead redemption 2 ✧ avatar frontiers of pandora ✧ south park the stick of truth                                                                   
 
 
-## ⧖ kins (but im not rly a serious kinny) ⧖                                                                   
+## ⧖ kins (but im not rly a serious kinny i js relate to them ig) ⧖                                                                   
 
 greg heffley ✧ max baker ✧ sunset shimmer                                                                   
 
