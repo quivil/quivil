@@ -17,7 +17,7 @@
 ## ⧖ games i like ⧖                                                                   
 
 
-minecraft ✧ 2xko ✧ marvel rivals ✧ fortnite ✧ roblox ✧ skullgirls ✧ red dead redemption 2 ✧ avatar frontiers of pandora ✧ south park the stick of truth ✧ gta5                                                                   
+minecraft ✧ 2xko ✧ marvel rivals ✧ fortnite ✧ roblox ✧ skullgirls ✧ red dead redemption 2 ✧ avatar frontiers of pandora ✧ south park the stick of truth ✧ gta5 ✧ tomodachi life ✧ mario games                                                                  
 
 
 ## ⧖ kins (but im not rly a serious kinny i js relate to them ig) ⧖                                                                   
