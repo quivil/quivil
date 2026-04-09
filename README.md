@@ -27,7 +27,7 @@ greg heffley ✧ max baker ✧ sunset shimmer
 
 ## ⧖ DNI list ⧖                                                                   
 
-homophobes ✧ transphobes ✧ racists ✧ proshippers ✧ darkshippers ✧ maga ✧ transmeds ✧ biphobes
+homophobes ✧ transphobes ✧ racists ✧ proshippers ✧ darkshippers ✧ maga ✧ transmeds ✧ biphobes ✧ literally anyone in the loud house fandom
 
 <!--
 **quivil/quivil** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
