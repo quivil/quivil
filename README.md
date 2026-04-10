@@ -27,7 +27,7 @@ greg heffley ✧ max baker ✧ sunset shimmer
 
 ## ⧖ DNI list ⧖                                                                   
 
-homophobes ✧ transphobes ✧ loud house fans ✧ tcoaal fans ✧ pressure fans ✧ drake fans ✧ jk rowling fans ✧ racists ✧ proshippers ✧ darkshippers ✧ maga ✧ transmeds ✧ biphobes ✧ lesbphobes ✧ people who dislike yuri ✧ neopronoun haters ✧ people who treat kamala harris like an idol ✧ ice supporters ✧ republicans in general ✧ bronies ✧ below 13 ✧ sam wilson haters ✧ anyone who self diagnoses as a system ✧ purity culture people ✧ zohran mamdami haters ✧ vivziepop defenders ✧ people under 15 who self diagnos with serious things ✧ valentino fans ✧ literally anyone in the loud house fandom fuck off
+homophobes ✧ transphobes ✧ loud house fans ✧ tcoaal fans ✧ pressure fans ✧ drake fans ✧ jk rowling fans ✧ racists ✧ proshippers ✧ darkshippers ✧ maga ✧ transmeds ✧ biphobes ✧ lesbphobes ✧ people who dislike yuri ✧ neopronoun haters ✧ people who treat kamala harris like an idol ✧ ice supporters ✧ republicans in general ✧ bronies ✧ melenie martinez fans ✧ below 13 ✧ sam wilson haters ✧ anyone who self diagnoses as a system ✧ purity culture people ✧ zohran mamdami haters ✧ vivziepop defenders ✧ ageplayers ✧ people under 15 who self diagnos with serious things ✧ valentino fans ✧ literally anyone in the loud house fandom fuck off
 
 <!--
 **quivil/quivil** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
